@@ -1,2 +1,0 @@
-# Internship-Project
-# Project-Internship
